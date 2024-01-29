@@ -12,7 +12,6 @@ Professional working in the educational area with a focus on technological desig
 - 🤔 I'm looking for help with people who want me to collaborate on projects and certify my experience in order to grow professionally.
 - 💬 Ask me about the projects you see published. 
 - 📫 How to reach me: (https://www.linkedin.com/in/lufe-diaz-s/)
--
 
 ## Autor
 [Fernanda Diaz Sandoval](https://www.linkedin.com/in/lufe-diaz-s/)
